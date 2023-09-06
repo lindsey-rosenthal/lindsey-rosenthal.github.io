@@ -1,1 +1,0 @@
-# lindsey-rosenthal.github.io
